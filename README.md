@@ -1,16 +1,17 @@
-## Hi there 👋
+<div id="header" align="center">
 
-<!--
-**2set/2set** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://komarev.com/ghpvc/?username=nineteendays&style=plastic&color=FF9EAB&label=_twinks_&base=17)
 
-Here are some ideas to get you started:
+<p align="center">
+<img src="https://files.catbox.moe/kjgx6c.png"> 
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<div id="header" align="center">
+
+
+　 ♡ 　they / he / all , sixteen
+
+[my pt info](https://rentry.co/nineteendays) [ata](https://yoojoonghyuk.atabook.org/) [match rentry](https://rentry.co/body)
+
+<p align="center"
