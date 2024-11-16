@@ -10,7 +10,7 @@
 <div id="header" align="center">
 
 
-　 ♡ 　remaking again sorry :-(
+　 ♡ 　rmk again ;;
 
 [my pt info](https://rentry.co/nineteendays) [ata](https://yoojoonghyuk.atabook.org/) [match rentry](https://rentry.co/body)
 
