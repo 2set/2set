@@ -11,6 +11,7 @@
 
 
 　 ♡ 　i love my world yurified
+  
   yes im rmking brah
 
 [my pt info](https://rentry.co/nineteendays) [ata](https://yoojoonghyuk.atabook.org/) [match rentry](https://rentry.co/body)
