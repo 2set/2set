@@ -14,7 +14,7 @@ yall dont fw sachiiro no one room like i do
 
 [my pt info](https://rentry.co/nineteendays) [ata](https://yoojoonghyuk.atabook.org/) [match rentry](https://rentry.co/body)
 
-also hi 
+also hi extermination gc
 
 <img src="https://files.catbox.moe/h37il6.png"> <img src="https://files.catbox.moe/752f6j.png"> <img src="https://files.catbox.moe/02735j.png"> 
 <img src="https://files.catbox.moe/lrca5h.png"> <img src="https://files.catbox.moe/ui25na.png"> <img src="https://files.catbox.moe/joyi51.png">
