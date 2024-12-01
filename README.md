@@ -16,7 +16,7 @@ yall dont fw sachiiro no one room like i do
 
 also hi extermination gc
 
-<img src="https://files.catbox.moe/h37il6.png"> <img src="https://files.catbox.moe/752f6j.png"> <img src="https://files.catbox.moe/02735j.png"> 
+<img src="https://files.catbox.moe/8jb2wm.png"> <img src="https://files.catbox.moe/h37il6.png"> <img src="https://files.catbox.moe/752f6j.png"> <img src="https://files.catbox.moe/02735j.png"> 
 <img src="https://files.catbox.moe/lrca5h.png"> <img src="https://files.catbox.moe/ui25na.png"> <img src="https://files.catbox.moe/joyi51.png">
 <img src="https://files.catbox.moe/uf37hh.png"> <img src="https://files.catbox.moe/3u4l6u.png">
 
