@@ -12,6 +12,8 @@
 
 ♡ 　i love my world yurified
 
+yall dont fw sachiiro no one room like i do
+
 [my pt info](https://rentry.co/nineteendays) [ata](https://yoojoonghyuk.atabook.org/) [match rentry](https://rentry.co/body)
 
 <p align="center"
