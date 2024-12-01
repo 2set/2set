@@ -1,13 +1,11 @@
-<div id="header" align="center">
 
 ![](https://komarev.com/ghpvc/?username=2set&style=plastic&color=FF9EAB&label=_money_status_:_&base=2489)
 
-<p align="center">
 <img src="https://files.catbox.moe/7vm56v.png"> 
 </p>
 
 
-<div id="header" align="center">
+hi guys im gonna remake rhis place someday
 
 
 ♡ 　i love my world yurified
@@ -16,4 +14,9 @@ yall dont fw sachiiro no one room like i do
 
 [my pt info](https://rentry.co/nineteendays) [ata](https://yoojoonghyuk.atabook.org/) [match rentry](https://rentry.co/body)
 
-<p align="center"
+also hi 
+
+<img src="https://files.catbox.moe/h37il6.png"> <img src="https://files.catbox.moe/752f6j.png"> <img src="https://files.catbox.moe/02735j.png"> 
+<img src="https://files.catbox.moe/lrca5h.png"> <img src="https://files.catbox.moe/ui25na.png"> <img src="https://files.catbox.moe/joyi51.png">
+<img src="https://files.catbox.moe/uf37hh.png">
+
