@@ -10,6 +10,8 @@ hi guys im gonna remake rhis place someday
 
 ♡ 　i love my world yurified
 
+orvians love sangah we all say in unison!
+
 yall dont fw sachiiro no one room like i do
 
 [my pt info](https://rentry.co/nineteendays) [ata](https://yoojoonghyuk.atabook.org/) [match rentry](https://rentry.co/body)
