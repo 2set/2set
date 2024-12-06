@@ -1,8 +1,10 @@
+<div id="header" align="center">
 
 ![](https://komarev.com/ghpvc/?username=2set&style=plastic&color=FF9EAB&label=_money_status_:_&base=2489)
+  
+<img src="https://files.catbox.moe/ug24lk.png">
 
-<img src="https://files.catbox.moe/7vm56v.png"> 
-</p>
+<p align="center"
 
 
 hi guys im gonna remake rhis place someday
