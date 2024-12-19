@@ -6,4 +6,5 @@
 
 
 ![](https://komarev.com/ghpvc/?username=2set&style=plastic&color=f1a551&label=_kimcom_members_&base=2489)
-(ㅅ´ ˘ `)⠀⠀⠀⠀who the fuck is 2set on github
+
+who the fuck is 2set on github
