@@ -7,6 +7,6 @@
 
 ![](https://komarev.com/ghpvc/?username=2set&style=plastic&color=f1a551&label=_kimcom_members_&base=2489)
 
-who the fuck is 2set on github
+please interact w me if u like no home, link click, orv etc.
 
 im a certified han maru glazer, kys if u hate han maru :drooling_face:
