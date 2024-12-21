@@ -7,6 +7,6 @@
 
 ![](https://komarev.com/ghpvc/?username=2set&style=plastic&color=f1a551&label=_kimcom_members_&base=2489)
 
-please interact w me if u like no home, link click, orv etc.
+please interact w me if u like no home, link click, orv, idv
 
 im a certified han maru glazer, kys if u hate han maru :drooling_face:
