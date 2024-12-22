@@ -10,3 +10,7 @@
 please interact w me if u like no home, link click, orv, idv
 
 im a certified han maru glazer, kys if u hate han maru :drooling_face:
+
+who the fuck is even 2set on github :sob: :sob: :sob: :pray:
+
+im lit lhy and eun btw.. :heart:
