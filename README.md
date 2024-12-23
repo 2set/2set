@@ -1,16 +1,9 @@
 <div id="header" align="center">
+
+![](https://komarev.com/ghpvc/?username=2set&style=plastic&color=EEB3BC&label=_´꒳`_kimcom_members_&base=2489)
   
-<img src="https://i.pinimg.com/736x/98/7d/db/987ddb9967dad06468bd9b6fcadf3bdc.jpg">
+<img src="https://files.catbox.moe/sjo1cw.png">
 
 <p align="center"
 
-
-![](https://komarev.com/ghpvc/?username=2set&style=plastic&color=f1a551&label=_kimcom_members_&base=2489)
-
-please interact w me if u like no home, link click, orv, idv
-
-im a certified han maru glazer, kys if u hate han maru :drooling_face:
-
-who the fuck is even 2set on github :sob: :sob: :sob: :pray:
-
-im lit lhh and eun btw.. :heart:
+[rentry](https://rentry.co/azumi)⠀⠀⠀⠀⠀⠀⠀<img src="https://64.media.tumblr.com/79cc5d32f21fc536e0422a3bc762ce24/tumblr_inline_p7kc03zLFD1qdlkyg_75sq.gif">⠀⠀⠀⠀⠀⠀⠀[atabook](https://yoojoonghyuk.atabook.org/)
