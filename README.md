@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=2set&style=plastic&color=EEB3BC&label=_´꒳`_kimcom_members_&base=2489)
   
-<img src="https://files.catbox.moe/sjo1cw.png">
+<img src="https://files.catbox.moe/xz0qvz.webp">
 
 <p align="center"
 
