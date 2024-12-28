@@ -6,4 +6,4 @@
 
 <p align="center"
 
-[rentry](https://rentry.co/azumi)⠀⠀⠀⠀⠀⠀⠀<img src="https://64.media.tumblr.com/79cc5d32f21fc536e0422a3bc762ce24/tumblr_inline_p7kc03zLFD1qdlkyg_75sq.gif">⠀⠀⠀⠀⠀⠀⠀[atabook](https://yoojoonghyuk.atabook.org/)
+[rentry](https://rentry.co/azumi)⠀⠀⠀⠀⠀⠀⠀<img src="https://files.catbox.moe/vo514e.gif">⠀⠀⠀⠀⠀⠀⠀[atabook](https://yoojoonghyuk.atabook.org/)
