@@ -2,7 +2,9 @@
 
 ![](https://komarev.com/ghpvc/?username=2set&style=plastic&color=D1649B&label=_𖦁_&base=2489)
   
-<img src="https://files.catbox.moe/qwcjjd.png">
+<img src="a">
+
+remaking hi
 
 ﹒re[ntry⠀](https://rentry.co/azumi)⠀⠀(ó﹏ò｡)⠀⠀[⠀atabo](https://yoojoonghyuk.atabook.org)ok﹒
 
