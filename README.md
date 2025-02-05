@@ -1,6 +1,8 @@
 <div id="header" align="center">
 
 ![](https://komarev.com/ghpvc/?username=2set&style=plastic&color=D1649B&label=_　　✿　　_&base=2489)
+
+hi chat im sick abt no home lalala i love no home!!!
   
 <img src="https://files.catbox.moe/wogwa3.webp">
 
