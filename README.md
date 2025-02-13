@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=2set&style=plastic&color=D1649B&label=_　　✿　　_&base=2489)
   
-<img src="wip">
+<img src="https://files.catbox.moe/t8a4zp.gif">
 
 ﹒re[ntry⠀](https://rentry.co/azumi)⠀⠀.⠀⠀[⠀atabo](https://yoojoonghyuk.atabook.org)ok﹒
 
