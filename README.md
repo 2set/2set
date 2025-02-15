@@ -2,6 +2,8 @@
 
 ![](https://komarev.com/ghpvc/?username=2set&style=plastic&color=3D9A34&label=_　　★_Vautour_Bleu_Consumers　　_&base=2489)
 
+i like no home a lot.
+
 [pt rentry](https://rentry.co/azumi)⠀⠀⠀[ᶜᵃʳʳᵈ](https://juwan.crd.co/)⠀⠀⠀[atabook](https://yoojoonghyuk.atabook.org)
   
 <img src="https://files.catbox.moe/t8a4zp.gif">
