@@ -1,6 +1,6 @@
 <div id="header" align="center">
 
-![](https://komarev.com/ghpvc/?username=2set&style=plastic&color=884A4D&label=_　　★　　_&base=2489)
+![](https://komarev.com/ghpvc/?username=2set&style=plastic&color=000000&label=_　　★　　_&base=2489)
 
 [<img src="https://files.catbox.moe/7el1ud.png">](https://rentry.co/azumi) 　　　 [<img src="https://files.catbox.moe/l0nmxj.png">](https://yoojoonghyuk.atabook.org) 　　　 [<img src="https://files.catbox.moe/i9zgqk.png">](https://juwan.crd.co/) 
 
